@@ -1,4 +1,4 @@
-# Hi there, I'm Ho Le Na ( Jenia) 👋 
+# Hi there, I'm Ho Le Na (Jenia) 👋 
 
 ### 🚀 AI Engineer | Data Science Enthusiast | NLP & Legal AI | ESG 
 
