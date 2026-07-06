@@ -1,7 +1,7 @@
 # Hi there, I'm Ho Le Na (Jenia) 👋 
 
 ### 🚀 AI Engineer | Data Science Enthusiast | NLP & Legal AI | ESG 
-
+HCMUS IT Student 29'
 > *"AI & Data Science researcher passionate about building intelligent ecosystems where AIoT transforms the physical worlde."*
 
 
